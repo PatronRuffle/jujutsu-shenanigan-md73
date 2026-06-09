@@ -1,4 +1,4 @@
-#  
+#  jujutsu shenanigans Scripts no-ban is the best jujutsu shenanigans Script, featuring auto-collect and speed. Safe and powerful for all your needs.
 
 
 
